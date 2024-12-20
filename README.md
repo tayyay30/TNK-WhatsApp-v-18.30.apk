@@ -1,0 +1,1 @@
+# TNK-WhatsApp-v-18.30.apk
